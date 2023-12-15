@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @baotrinhnz
+- 🌱 I’m currently learning many things
+- 💞️ I’m looking to collaborate on developers !!!!
+- 📫 How to reach me ...baotrinhnz@gmail.com
